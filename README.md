@@ -7,4 +7,3 @@
 # github  github.com/E5shota
 # 预览图在这里看
 ## https://www.wazt5idd.one
-## https://alist-replit.alist-replit1.repl.co
