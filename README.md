@@ -1,7 +1,7 @@
 # link-my
 联系我的方式
-# 推特 @shotaffff1
-## https://twitter.com/shotaffff1
+# 推特 @shota3389
+## https://twitter.com/shota3389
 # TG   @shotaABC
 ## https://t.me/shotaABC
 # github  github.com/E5shota
