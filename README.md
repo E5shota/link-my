@@ -9,3 +9,5 @@
 ## https://www.wazt5idd.one
 # 进群聊天哦
 ## https://t.me/fuckshota
+# 我的Discord
+# https://discord.gg/hcacutsMDx
