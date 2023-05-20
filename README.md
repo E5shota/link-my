@@ -11,3 +11,5 @@
 ## https://t.me/fuckshota
 # 我的Discord
 # https://discord.gg/hcacutsMDx
+下载预览图
+# https://shota.pw/s/Z2Hq
