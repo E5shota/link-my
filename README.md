@@ -1,5 +1,5 @@
 # link-my
-联系我的方式
+# 华为手机用户请直接使用电脑
 # 推特 @ZChushou80951
 ## https://twitter.com/ZChushou80951
 # TG   @fuckyounvdiaa
