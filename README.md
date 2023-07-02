@@ -6,8 +6,8 @@
 ## [@fuck_shota](https://t.me/fuck_shota)
 # github  github.com/E5shota
 # 预览图在这里看
-## [套餐一](https://t.me/yulantu0001)
-## [套餐二](https://t.me/yulantu0)
+## [套餐一预览图](https://t.me/yulantu0001)
+## [套餐二预览图](https://t.me/yulantu0)
 # 进群聊天哦
 ## https://t.me/fuckshota
 # 我的Discord
