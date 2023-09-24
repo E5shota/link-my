@@ -1,7 +1,6 @@
 # link-my
 # 华为手机用户请直接使用电脑
-# 推特 @ZChushou80951
-## https://twitter.com/ZChushou80951
+
 # TG   fuck_shota
 ## [咨询资源价格](https://t.me/fuck_shota)
 # github  github.com/E5shota
