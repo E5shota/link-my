@@ -1,7 +1,7 @@
 # link-my
 # 华为手机用户请直接使用电脑
 
-# TG   fuck_shota
+# [买资源或者试看](https://t.me/fuck_shota)
 ## [咨询资源价格](https://t.me/fuck_shota)
 # github  github.com/E5shota
 # 预览图在这里看
